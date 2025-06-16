@@ -1,22 +1,22 @@
 # :sparkles::sparkles:名优馆app发布页:sparkles::sparkles:
 
- :heart: :point_right: 【最新地址1】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址1】 ：https://mingyouguanapp.pages.dev   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址2】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址2】 ：https://mingyouguanapp.pages.dev   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址3】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址3】 ：https://mingyouguanapp.pages.dev   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址4】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址4】 ：https://mingyouguanapp.pages.dev   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址5】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址5】 ：https://mingyouguanapp.pages.dev   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址6】 : https://mingyouguan.github.io/mingyouguanapp/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址6】 : https://mingyouguanapp.pages.dev  （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址7】 ：https://mingyouguan.github.io/mingyouguanapp/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址7】 ：https://mingyouguanapp.pages.dev  （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址8】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址8】 ：https://mingyouguanapp.pages.dev   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址9】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址9】 ：https://mingyouguanapp.pages.dev   （点击打开，看完记得收藏)
   ------
 
   
