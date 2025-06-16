@@ -1,16 +1,26 @@
-## Hi there 👋
+# :sparkles::sparkles:名优馆app发布页:sparkles::sparkles:
 
-<!--
-**mingyouguanapp/mingyouguanapp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ :heart: :point_right: 【最新地址1】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ ------
+ :heart: :point_right: 【最新地址2】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ ------
+ :heart: :point_right: 【最新地址3】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ ------
+ :heart: :point_right: 【最新地址4】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ ------
+ :heart: :point_right: 【最新地址5】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ ------
+ :heart: :point_right: 【最新地址6】 : https://mingyouguan.github.io/mingyouguanapp/  （点击打开，看完记得收藏)
+ ------
+ :heart: :point_right: 【最新地址7】 ：https://mingyouguan.github.io/mingyouguanapp/  （点击打开，看完记得收藏)
+ ------
+ :heart: :point_right: 【最新地址8】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+ ------
+ :heart: :point_right: 【最新地址9】 ：https://mingyouguan.github.io/mingyouguanapp/   （点击打开，看完记得收藏)
+  ------
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+  
+#### （复制地址到浏览器中打开）：
+# :sparkles:重要提醒:sparkles:收藏本页面，避免迷路！
+#### :近期部分国产浏览器屏蔽网址，推荐使用Chrome谷歌浏览器、Edge浏览器访问，苹果使用自带浏览safari。o
 -->
